@@ -1,0 +1,1 @@
+Scale to 76% to print on the MP Cadet
